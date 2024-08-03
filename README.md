@@ -4,4 +4,4 @@
 
 ![](https://files.catbox.moe/xmklbg.png)
 
-[rentry](https://rentry.co/percent)‎⠀⠀⠀[strawpage](https://fibonacci.straw.page)‎⠀⠀⠀[atabook](https://bait.atabook.org/)⠀⠀⠀[retrospring](https://retrospring.net/@tease)
+[atabook](https://bait.atabook.org/)⠀⠀⠀[retrospring](https://retrospring.net/@tease)
